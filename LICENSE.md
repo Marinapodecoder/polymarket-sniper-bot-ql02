@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with quantitative Polymarket Tool | custom-strategies + API-integration, the #1 tool. Includes custom-strategies and API-integration for a smoother
 
 
 
